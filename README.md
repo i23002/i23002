@@ -2,7 +2,7 @@
 - 👀 
 - 🌱
 - 💞️
-- 📫 You can reach at to him in his new & official account @indradeep2002.
+- 📫 You can reach at to him in his new & official account indradeep2002.
 
 <!---
 i23002/i23002 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
